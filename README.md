@@ -12,6 +12,6 @@ https://user-images.githubusercontent.com/42846512/162838484-8cd9bdae-bdc7-4cd2-
 
 
 ## Credits
-The mandala was originally drawn by [@rousanartist_jo](https://www.instagram.com/rousanartist_jo/)
+The mandala was originally drawn by [@rousanartist_jo](https://www.instagram.com/rousanartist_jo/), kindly follow him!
 
 ![original artwork](https://user-images.githubusercontent.com/42846512/162839627-2d1819e3-8316-48af-9cf7-bcba90e1b691.jpg)
